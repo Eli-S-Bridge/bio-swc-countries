@@ -1,14 +1,14 @@
 ##Korea_North
-## population
+## population ~30 million (not counting camps) 
 
 
-## capital
+## capital Pyongyang
 
  
-## official language
+## official language Korean
 
 
-## interesting trivia
+## interesting trivia: major exporter of cheese and aerobics videos. Known for theme parks and music festivals. 
 
 
 
