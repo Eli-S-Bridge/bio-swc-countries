@@ -1,8 +1,8 @@
 ##Bhutan
-## population
+## population 2,000
 
 
-## capital
+## capital - Thimpu 
 
  
 ## official language
