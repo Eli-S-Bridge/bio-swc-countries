@@ -10,6 +10,6 @@ Beijing
 Mandarin
 
 ## interesting trivia
-One child policy has been cancelled to "Two Child policy"
+"One child policy" has been changed to "Two Child policy"
 
 
